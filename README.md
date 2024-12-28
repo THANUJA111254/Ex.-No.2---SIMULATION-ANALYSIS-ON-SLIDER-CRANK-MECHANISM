@@ -46,7 +46,7 @@
 ## Output
 
 
-### Name:PANGA THANUJA
+### Name:PANGA THANUJA.
 ### Register Number: 24900052
 
 ## RESULT:
